@@ -1,7 +1,6 @@
 - Acelin/Citrine
 - Trans male
 - Questioning orientation
-- In a QPR with @444cassidy
 - Bodily 20yo
 - OSDD-1B System, diagnosed.
 - English & Italian fluent, Spanish learning
