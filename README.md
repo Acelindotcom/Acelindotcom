@@ -1,5 +1,5 @@
 - Acelin/Citrine
-- Trans male
+- Transmasc female
 - Questioning orientation
 - Bodily 20yo
 - OSDD-1B System, diagnosed.
