@@ -4,4 +4,4 @@
 - Bodily 20yo
 - OSDD-1B System, diagnosed.
 - English & Italian fluent, Spanish learning
-- Literally only made this guthub so my wife would hush abt me not having a github to link to, I don't hand out socials unless you're a friend of me AND my wife.
+- Literally only made this guthub so my wife would hush abt me not having a github to link to, I don't hand out socials unless you're a friend of me AND my wives.
